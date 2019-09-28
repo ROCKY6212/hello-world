@@ -1,2 +1,6 @@
 # hello-world
-just another repository
+
+HI! THIS IS MR.ROCKY
+
+SEPTEMBER27TH 2019, FOR NAME SAKE SATURDAY .
+DONE WITH THE WEEK, IT'S WEEKEND.
